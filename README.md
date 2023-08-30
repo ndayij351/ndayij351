@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ndayij351
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...45656454 fugy
+- 🌱 I’m currently learning ...45656454 fugy hfdzh e hzfgf
 - 📫 How to reach me ...43322hret ertuhgjfrthe р екі5
 45g23ue56r ykr wthyti xf aertrterth rtt y5445y her nernertn
 <!---

@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ndayij351yyttyj
 - 👀 I’m interested in ... hahaajt
-- 🌱 I’m currently learning ...45656454 fugy hfdzh e hzfgfy retyrty yter rety57
+- 🌱 I’m currently learning ...45656454 fugy hfdzh e hzfgfy retyrty yter rety57h trhtr
 - 📫 How to reach me ...43322hret ertuhgjfrthe р екі5 g re gregh y3434y34yy34  fdj rtjrtsjtrj ytdtj 
 45g23ue56r ykr wthyti xf aertrterth rtt y5445y her nernertn jyrtjyrt
 <!--- oyuo tyuo uy
